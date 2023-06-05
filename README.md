@@ -15,3 +15,6 @@ bekerja diversi 3.3.1
 
 
 Support the Project: [Saweria](https://saweria.co/ngambangdotcom)
+---
+Telegram : [ngambang.com](https://t.me/ngambangdotcom)
+
